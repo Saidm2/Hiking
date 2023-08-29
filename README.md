@@ -17,3 +17,4 @@ The all time most important value in my life is to be grateful for what I have i
 ### Said's comment
 
 I really like your website hiking is one of my favorite things to do.
+Hiking is very good very your health also very good for your mental as well
